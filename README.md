@@ -1,0 +1,2 @@
+# Dilip-Cherian---Economic-Consultant-to-the-Ministry-of-Industry
+Dilip is also a valued political advisor and a practising lobbyist of repute.  Dilip started his career in Government, where he was Economic Consultant to the Ministry of Industry, Bureau of Industrial, Costs &amp; Prices (currently known as Tariff Commission), and went on to become the editor of Business India – India’s leading business magazine. Dilip is a much sought after speaker, moderator and anchor at national and international industry platforms as well as premier management institutions.
